@@ -4,5 +4,5 @@
   </div>
 <div align=center> 
   
-⋆.˚⟡ ࣪ ˖ ╰──╮[atabook](https://reguri.atabook.org/)╭──╯ . . ᰔ  . . ╰──╮[rentry](https://silentlily.straw.page/)╭──╯ ⋆.˚⟡ ࣪ ˖
+⋆.˚⟡ ࣪ ˖ ╰──╮[atabook](https://reguri.atabook.org/)╭──╯ . . ᰔ  . . ╰──╮[strawpage](https://silentlily.straw.page/)╭──╯ ⋆.˚⟡ ࣪ ˖
   </div>
