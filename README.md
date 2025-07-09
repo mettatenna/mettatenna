@@ -1,8 +1,8 @@
 <div align=center> 
   
-  ![](https://i.postimg.cc/SQYJb7Wv/Cookie0509-hang.webp)
+  [![IMG-6355.gif](https://i.postimg.cc/PxRspqzb/IMG-6355.gif)](https://postimg.cc/BLHwR4zt)
   </div>
 <div align=center> 
   
-⋆.˚⟡ ࣪ ˖ ╰──╮[atabook](https://reguri.atabook.org/)╭──╯ . . ᰔ  . . ╰──╮[strawpage](https://silentlily.straw.page/)╭──╯ ⋆.˚⟡ ࣪ ˖
+⋆.˚⟡ ࣪ ˖ ╰──╮[atabook](https://reguri.atabook.org/)╭──╯ . . ᰔ  . . ╰──╮[wip]( )╭──╯ ⋆.˚⟡ ࣪ ˖
   </div>
