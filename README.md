@@ -1,6 +1,6 @@
 <div align=center> 
   
-  ![](https://i.postimg.cc/MHzwJLDN/IMG-6355.gif)
+  ![](https://i.postimg.cc/tTDmfs43/IMG-7195.gif)
   </div>
 <div align=center> 
   
